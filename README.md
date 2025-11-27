@@ -14,7 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-# Hi 👋, I'm Mariam Mohamed
 
 - 🔭 I'm currently working on **Frontend projects using **React**, along with my **graduation project****
 
