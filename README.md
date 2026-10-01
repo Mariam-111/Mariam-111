@@ -25,7 +25,7 @@ Here are some ideas to get you started:
 
 - 📫 How to reach me **mm8133278@gmail.com**
 
-- 📄 Know about my experiences **[https://drive.google.com/file/d/1QzzMU-h37fvu1lb2MWIM274--apNPdhU/view?usp=sharing](https://drive.google.com/file/d/1QzzMU-h37fvu1lb2MWIM274--apNPdhU/view?usp=sharing)**
+- 📄 Know about my experiences **https://drive.google.com/file/d/1DDkyqblKawAQTyZXWc7ktnFGRZukQMzH/view?usp=sharing**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
